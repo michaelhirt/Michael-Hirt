@@ -1,0 +1,5 @@
+# Was ist die Business Model Benchmark Map?
+
+Aufgrund der stetig fortlaufenden Digitalisierung verlieren Unternehmensstrategien, welche „klassischer“ Natur sind, enorm an Bedeutung. Daraus resultiert eine immense ineffizient solcher Strategien. Um so wichtiger ist es, dass Unternehmensstrategien, mit Hilfe eines ganzheitliches Digitalisierungsprozesses, optimiert werden, sodass eine konstante Effektivität hervorgerufen werden kann. 
+„In Deutschland ist die Automobilindustrie eine Schlüsselindustrie mit großem Einflusspotenzial auf die Gesamtwirtschaft, da sie Innovationsführer ist und Arbeitsplätze schafft.“ (Hundertmark, 2012, S. 1-2)
+Um weiterhin eine Schlüsselindustrie der deutschen Wirtschaft zu bleiben, muss sich auch die Automobilindustrie den Prozess der Digitalisierung unterziehen. Deshalb sind nicht nur steigende betriebswirtschaftliche Kennzahlen von hoher Bedeutung, sondern auch die Intensivierung der Kundenbindung, dem sogenannten Customer Relationship Management, gewinnt zunehmend an Bedeutung.  
